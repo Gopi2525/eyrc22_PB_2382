@@ -6,6 +6,8 @@ Task 3C : https://youtu.be/AOLeav3CroE <br />
 Task 3D part 3 : https://youtu.be/1CCIQ_abbCA <br />
 Task 4A : https://youtu.be/DyiPAEwrHag
 
+Hardwarware : https://youtu.be/QLPeNUwdZ1E
+
 ![alt text](https://github.com/IAMSDEVAPRASAD/eyrc22_PB_2382/blob/main/Resources/images/indegx.jpeg)
 
 :)
